@@ -40,7 +40,7 @@ You are liable for the appropriate use of Custom Visuals. All copyrights in or t
 
 If any provision of the Policy is held invalid or unenforceable by a court of competent jurisdiction, the remaining provisions will remain in full force and effect, and such invalid or unenforceable provisions or portion thereof will be deemed omitted. 
 
-This Policy is governed by and construed in accordance with the laws of the Republic of Slovenia, and the courts of the Republic of Slovenia will have exclusive jurisdiction to adjudicate any dispute arising under or in relation to the Policy.
+This Policy is governed by and construed in accordance with the laws of Portugal, and the courts of Portugal will have exclusive jurisdiction to adjudicate any dispute arising under or in relation to the Policy.
 
 ## Privacy Questions and updates
 
